@@ -2,7 +2,7 @@
 <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/2c94c1fb-72e2-4933-bb73-55b09c58bd6d/dkdyy71-acb065d1-905d-4f95-b008-2baf2b504977.png/v1/fill/w_841,h_564/ai_coleman__dorohedoro__render__4_by_jarrostan_dkdyy71-fullview.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9NTY0IiwicGF0aCI6Ii9mLzJjOTRjMWZiLTcyZTItNDkzMy1iYjczLTU1YjA5YzU4YmQ2ZC9ka2R5eTcxLWFjYjA2NWQxLTkwNWQtNGY5NS1iMDA4LTJiYWYyYjUwNDk3Ny5wbmciLCJ3aWR0aCI6Ijw9ODQxIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmltYWdlLm9wZXJhdGlvbnMiXX0.dM4qh58CfEvhtSmOlJjJhNfgqlntuycBu59Agk9MaDk" width="500"/>
 
 <p align="center">
-if you like dorohedoro and dai dark *puts a little bug and some dirt in your hand* i like you. Keep This......
+if you like dorohedoro / dai dark *puts a little bug and some dirt in your hand* i like you. Keep This...... same goes for mob psycho 100 and ghost trick phantom detective. Confetti Noise
 <p align="center">
 idk what to put here so im spamming stamps of my slops #GodBless
 
