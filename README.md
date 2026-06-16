@@ -10,5 +10,5 @@ idk what to put here so im spamming stamps of my slops #GodBless #IAlsoReallyLik
 <p align="center">
 
 <p align="center">
-<img src="" />
+<img src="https://oceancake.carrd.co/assets/images/gallery22/c7d68336.gif?v=edab04a1" />
 <p align="center">
