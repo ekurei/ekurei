@@ -1,7 +1,7 @@
 <div align="center">
 <hr>
 <img src="https://biscuit.crd.co/assets/images/gallery85/bc77fed5.gif?v=edffcd2f" width=50"/><img src="https://biscuit.crd.co/assets/images/gallery85/bc77fed5.gif?v=edffcd2f" width=50"/><img src="https://biscuit.crd.co/assets/images/gallery85/bc77fed5.gif?v=edffcd2f" width=50"/><img src="https://biscuit.crd.co/assets/images/gallery85/bc77fed5.gif?v=edffcd2f" width=50"/>
-<img align="left" src="https://preview.redd.it/ai-coleman-dorohedoro-render-dump-v0-7nrokx6dvt6g1.png?width=1205&format=png&auto=webp&s=bd05377b1f74641b6f248e28bc5734e8897f480e" height="500"/>
+<img align="left" src="https://preview.redd.it/ai-coleman-dorohedoro-render-dump-v0-7nrokx6dvt6g1.png?width=1205&format=png&auto=webp&s=bd05377b1f74641b6f248e28bc5734e8897f480e" height="550"/>
 
 <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/2c94c1fb-72e2-4933-bb73-55b09c58bd6d/dkdyy71-acb065d1-905d-4f95-b008-2baf2b504977.png/v1/fill/w_841,h_564/ai_coleman__dorohedoro__render__4_by_jarrostan_dkdyy71-fullview.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9NTY0IiwicGF0aCI6Ii9mLzJjOTRjMWZiLTcyZTItNDkzMy1iYjczLTU1YjA5YzU4YmQ2ZC9ka2R5eTcxLWFjYjA2NWQxLTkwNWQtNGY5NS1iMDA4LTJiYWYyYjUwNDk3Ny5wbmciLCJ3aWR0aCI6Ijw9ODQxIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmltYWdlLm9wZXJhdGlvbnMiXX0.dM4qh58CfEvhtSmOlJjJhNfgqlntuycBu59Agk9MaDk" width="400"/>
 <h3 align="center">✩ [ THE APOTHEOSIS IS UPON US!!! ]✩</h4>
